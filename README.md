@@ -1,0 +1,1 @@
+# degerlendirmeOlcutleri
